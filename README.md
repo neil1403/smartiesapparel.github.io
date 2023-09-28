@@ -1,1 +1,1 @@
-# smartiesapparel.github.io
+# smarties.github.io
